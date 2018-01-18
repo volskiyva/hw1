@@ -16,7 +16,7 @@
 
 ![alt text](https://pp.userapi.com/c628120/v628120815/1f1e2/YbP_rQQhOLg.jpg)
 
-![alt tex)t(![alt text(https://pp.userapi.com/c624724/v624724815/4b796/0kn8MC_XagU.jpg)
+![alt text](https://pp.userapi.com/c624724/v624724815/4b796/0kn8MC_XagU.jpg)
 
 5. Расписание занятий:
 
